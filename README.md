@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Codeing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord
-- 😄 Pronouns: he not him because i can b=never be him
+- 😄 Pronouns: he not him because I can never be him
 - ⚡ Fun fact: ...
 
 <!---
